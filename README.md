@@ -1,1 +1,1 @@
-# Omgod
+# Omgod - god is first
